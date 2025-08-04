@@ -1,1 +1,0 @@
-# Painel_clothing_store
